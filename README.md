@@ -7,16 +7,16 @@ HDTY
 ❤️ 👉 【WEB地址3】 ：[https://6bc3.hdty169.com:6443](https://6bc3.hdty169.com:6443/register/?i_code=8193713)
 ---
 
-❤️ 👉 【WEB地址2】 ：[https://www.hdty169.com:290663](https://www.hdty169.com:290663/register/?i_code=8193713)
+❤️ 👉 【WEB地址2】 ：[https://www.hdty169.com:29066](https://www.hdty169.com:29066/register/?i_code=8193713)
 ---
 
-❤️ 👉 【WEB地址1】 ：[https://www.hdty250.com:379003](https://www.hdty250.com:379003/register/?i_code=8193713)
+❤️ 👉 【WEB地址1】 ：[https://www.hdty250.com:37900](https://www.hdty250.com:37900/register/?i_code=8193713)
 ---
 
-❤️ 👉 【H5地址3】 ： [https://www.hdty172.com:6443](https://www.hdty172.com:290663/entry/register/?i_code=8193713)
+❤️ 👉 【H5地址3】 ： [https://www.hdty172.com:6443](https://www.hdty172.com:6443/entry/register/?i_code=8193713)
 ---
 
-❤️ 👉 【H5地址2】 ：[https://www.hdty172.com:290663](https://www.hdty172.com:290663/entry/register/?i_code=8193713)
+❤️ 👉 【H5地址2】 ：[https://www.hdty172.com:29066](https://www.hdty172.com:29066/entry/register/?i_code=8193713)
 ---
 
 ❤️ 👉 【H5地址1】 ：[https://www.hdvip51.com:37900](https://www.hdvip51.com:37900/entry/register/?i_code=8193713)
